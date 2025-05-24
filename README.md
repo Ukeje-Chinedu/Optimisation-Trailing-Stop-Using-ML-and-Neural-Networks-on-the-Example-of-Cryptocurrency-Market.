@@ -1,0 +1,1 @@
+# Optimisation-Trailing-Stop-Using-ML-and-Neural-Networks-on-the-Example-of-Cryptocurrency-Market.
